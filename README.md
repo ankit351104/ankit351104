@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ankit.kr351104@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZrycxJC0DXNWcii3JBuvTMJzWPWpk9VM/view?usp=sharing](https://drive.google.com/file/d/1ZrycxJC0DXNWcii3JBuvTMJzWPWpk9VM/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZrycxJC0DXNWcii3JBuvTMJzWPWpk9VM/view?usp=sharing](https://drive.google.com/file/d/1ZTqSzlFD_EdSnt-PV6acBWi2TQ7Hhs8Z/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
